@@ -10,7 +10,7 @@
 
 
 
- Info About the Dev-
+ Info About The Dev-
  1.Github-japandotorg,
  2.Discord-inthedark.org#0666,
  3.Discord Server-discord.gg/zjejaBM2n5,
